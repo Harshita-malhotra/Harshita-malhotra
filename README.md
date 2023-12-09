@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Harshita-malhotra
+- 👀 I’m interested in coding and my hobbies include dancing and playing Badminton
+- 🌱 I’m currently learning C ,PYTHON coding languages
+- 🎯 My short term goal - Getting a good command on languages like JAVA, PYTHON, C, C++
+- ☘️ My long term goal - ...<STILL PROCESSING>...💭
